@@ -1,3 +1,5 @@
-# Hi there ৻( •̀ ᗜ •́ ৻)
+# Hi there! (⊙ _ ⊙ )
 
-## Just check out my about page &rarr; [Click me („• ֊ •„)੭ !](https://abukhari148.github.io/about/) 
+![](https://komarev.com/ghpvc/?username=abukhari148)
+
+## Just check out my about page &rarr; [Click me ৻( •̀ ᗜ •́ ৻)](https://abukhari148.github.io/about/) 
