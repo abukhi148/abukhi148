@@ -1,4 +1,4 @@
-# Hi there! (⊙ _ ⊙ )
+# Hi there!
 
 ![](https://komarev.com/ghpvc/?username=abukhari148)
 
